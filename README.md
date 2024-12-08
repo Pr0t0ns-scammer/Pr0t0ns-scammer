@@ -20,3 +20,6 @@ https://github.com/Pr0t0ns
 
 
 <img width="578" alt="image" src="https://github.com/user-attachments/assets/1865766e-b152-4318-978f-666e757f6c5c">
+
+
+He is a scammer. Do not buy anything from him
